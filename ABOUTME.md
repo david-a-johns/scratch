@@ -1,10 +1,10 @@
-== Overview ==
+==Overview==
 
-== Cognitive style ==
+==Cognitive style==
 
-== Communication style ==
+==Communication style==
 
-== Bibliography ==
+==Bibliography==
 
 https://www.amazon.com/Turn-Ship-Around-Turning-Followers/dp/1591846404
 https://www.amazon.com/Places-that-Scare-You-Fearlessness/dp/1570629218
